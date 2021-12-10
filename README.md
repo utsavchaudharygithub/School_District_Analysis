@@ -42,3 +42,6 @@ Given scores shows that Charter school has comparatively higher passing percenta
 
 # Conclusion
 The Charter schools have very impressive results to Distict schools. and School size hampers a lot on passing percentages , could be be because students are given more attention. We suggest the school disticts to focus more on larger scale school and students. Top Performing schools are also from Charter schools which leads the district school which are bottom five performing school and students at bottom school need to focus more on Math in order to raise the percentages.
+
+
+https://www.linkedin.com/in/utsav-chaudhary-b394152b/
